@@ -1,0 +1,31 @@
+---
+import { getCollection, getEntry } from 'astro:content';
+import site from "@data/site.js"
+import Base from "@layouts/Base.astro";
+
+export async function getStaticPaths() {
+  const entries = await getCollection('interviews')
+  return entries.map(entry => {
+    return {
+      params: {
+        slug: entry.slug
+      },
+      props: {
+        entry
+      }
+    }
+  })
+}
+
+const { entry } = Astro.props;
+const { Content } = await entry.render();
+---
+<Base>
+	<div class="bg-light p-5 rounded mt-3">
+		<h1>{site.title}</h1>
+		<p class="lead">{site.description}</p>
+
+		<h2>{entry.data.title}</h2>
+		<Content />
+	</div>
+</Base>
