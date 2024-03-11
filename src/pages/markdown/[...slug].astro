@@ -4,8 +4,12 @@ import site from "@data/site.js"
 import Base from "@layouts/Base.astro";
 
 export async function getStaticPaths() {
-  const entries = await getCollection('interviews')
-  return entries.map(entry => {
+  const interviews = await getCollection('interviews')
+  const fictions = await getCollection('fictions')
+  return [
+    ...interviews,
+    ...fictions
+  ].map(entry => {
     return {
       params: {
         slug: entry.slug
