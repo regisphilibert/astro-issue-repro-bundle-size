@@ -1,6 +1,6 @@
 # Astro Netlify Repro
 
-GH Issue: https://github.com/withastro/astro/issues/????
+GH Issue: https://github.com/withastro/adapters/issues/184
 
 ## Versions
 Astro 4.5.0
