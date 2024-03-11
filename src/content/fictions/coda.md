@@ -1,0 +1,31 @@
+---
+title: Coda
+date: 2008-10-15T09:34:06+00:00
+related_tax_publication_term:
+  - 584
+tax_issue: AGNI 68
+authors:
+  - profile/lynne-sharon-schwartz.md
+tax_format: Print
+translators: []
+
+---
+The doctors, our families, everyone assumed we would choose the surgery right away. We were told it was easier and less problematic in infancy than later on. But we couldn’t bring ourselves to expose a newborn to that kind of risk, plus God knows what pain and trauma. Was it really worth it simply to remove something that was even—it sounds crazy, I know, but—kind of cute? At least for now. We could always opt for the surgery later, when he was still small. And otherwise he was perfect, a beautiful boy. Maybe with a girl we might have felt differently. Everyone knows the whole beauty and conformity issue is tougher on girls, unfair as that is. But a boy . . .
+
+Granted, it was a shock when we first saw it, right after he was born, when we were so glad it was all over and had been a normal birth. First the doctor’s face showed genuine pleasure—relief, too— and then her expression changed, and the nurses’ faces changed too: a stunned look, then a kind of horror, and then an unnerving silence fell over the room. They tried to wrap him up quickly, but we knew something was amiss and insisted that they show us. We gasped—I remember I closed my eyes in disbelief. Of all the things we’d worried about, that all prospective parents worry about, who would ever have thought of this? We were holding hands; we squeezed tight but didn’t look at each other. Then immediately—he wasn’t two minutes old—the doctor started talking about cutting it off. Not a word about the rest of him, how perfect everything else was.
+
+We didn’t fall in line as they all expected. It wouldn’t matter much until he started school, we figured, and then if it really bothered him it could probably be hidden. A lot would depend on how we handled it, and there was plenty of time to work that out. Our parents said we’d never be able to find babysitters once they saw; it was just too weird, it even gave _them_ the creeps. That was plain to see, and painful—the way they were reluctant to hold him, the way their lips curled ever so slightly and their fingers shrank back from the bundle in the blanket. Well, we told them, we’ll have to find unprejudiced, broad-minded people. At some point in history we probably all had an appendage, so this was a reminder of what we came from. It didn’t make him an animal, after all; he was a perfect little person, except for this throwback. And it could have been worse. He could have had a dread disease or some mental impairment. Would they prefer that?
+
+We were reminded by the doctors that it wouldn’t stay so small. It would grow along with him. Think of him becoming a school-age kid, then an adolescent, they said. Think about him trying to play sports—it wouldn’t be easy to hide in a football uniform, or tennis shorts, or in a locker room. And what about when he started going with girls? It was unfair, even cruel, not to remove it.
+
+He could find ways of tucking it in, we said. It might even generate a certain cachet, depending on what kind of kid he turned out to be. If he was confident and felt good about himself—and we certainly intended to bring him up in that spirit—he could deal with it, maybe turn it into an asset. As far as girls and women, well, without going into gross detail, there might be a piquant appeal. That is, certain kinds of titillations he could offer that others couldn’t. But naturally we didn’t like to think about that sort of thing while he was just a tiny infant.
+
+Besides, he couldn’t be the only one. If there was something mis-programmed or awry in our genes—in the genes of one of us—surely there were others like us? Like him? There had been a few rare cases, the doctors said, but the parents always chose surgery promptly, before they took the child home from the hospital. And so they, the doctors, couldn’t fathom our reluctance. Well, how about in other countries, we asked, say third-world countries where they didn’t have access to high-tech surgical procedures? They’d live with it, wouldn’t they? They’d take what they’d been given and love it just the same. Maybe it was a test of what you could love. Parents loved babies with far worse deformities, if this should even be called a deformity.
+
+Yes, somewhere in the world there must be others like him. We might find them. You can find anything online. Maybe they had some kind of group, some secret chat room where they exchanged advice about how to cope—though what a pity that they had to be so secretive. We could try to be more open, educate people about accepting differences. Why was it any different from a shrunken arm, like those thalidomide babies of the Sixties, or a crossed eye, or a club foot? Nobody would choose those aberrations, of course, but there wasn’t any dreadful social prejudice attached to them. Nobody thought of those people as less than human—as animals, almost. No one feared them or shunned them.
+
+Of course we understood it was the suggestion of the primitive: something that wasn’t supposed to be there, something we were supposed to have outgrown millennia ago. Well, apparently we hadn’t outgrown it completely. It still lurked in some of us.
+
+So we took our baby home and we love him just as he is. There’s no way of forgetting it; we see it all the time, changing him, bathing him. It curls up inside the diaper and no one who visits knows it’s there. Everyone oohs and aahs as people do over newborns, and we think maybe we should start letting them know, acting as if it’s nothing special, but we don’t feel quite ready to do that. We do wonder all the time about how it could have happened, what was curled up unseen inside us—one of us. We talk about it, hesitantly; we’re glad it can’t be traced to one or the other to start us blaming, because there’s never been anything like this in either of our families—as far as we know, that is. We agree that these things are random and inexplicable.
+
+What else, we wonder, might be different about him? I mean things we can’t see as plainly as we see this, intangible things that may show up later on. But we don’t talk about that. We wonder silently, and we wait.

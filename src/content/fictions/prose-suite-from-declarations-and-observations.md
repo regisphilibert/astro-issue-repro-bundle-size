@@ -1,0 +1,82 @@
+---
+title: '<em>from</em> Declarations and Observations: Prose Suite'
+date: 2017-07-01T09:32:03+00:00
+related_tax_publication_term:
+  - 180
+authors:
+  - profile/angela-woodward.md
+tax_format: AGNI Online
+translators: []
+
+---
+**Quiet Places**
+
+I have enjoyed many quiet places: the backseat of a car, the edge of a garden, a post office, a Dunkin Donuts. Elsewhere, an empty hallway, a library, a stairway landing. Sometimes it’s quiet on a dead-end street, or in the alley behind the bridal shop. No noise intrudes on an ink and toner storage closet, or among shelves holding pumpkin-scented candles. A back lawn in the suburbs is often quite still, as are those little side passages that run between self-storage units. The bottom of a pond is quiet. So is the moon. The room where children complete their state-mandated test is quiet. The School for the Deaf is full of shuffling feet, but the lobby of a movie theater on a Tuesday night is quiet.
+
+A rail car parked on the South Side is quiet. Its chemical fumes and persistent leak have stifled any commotion on the ground beneath it too. A telephone booth is quiet, and a mortuary. An insurance agent’s office is quiet, also an igloo, and a wood-carving competition. The nursery where Ida sleeps is quiet. Honey Creek is quiet. The surgical recovery room is quiet. A commercial greenhouse is quiet, except for the hiss of the irrigation pipes. Sheds holding garden tools are quiet. On Wednesday evenings, the little town Kira comes from is quiet, and Thursdays too. It’s quiet under a tarp, or in a cave, or in a ditch in the back of beyond. Barely any noise squeaks out of the east wing of the psych ward, because that’s where the good patients are. It can be pretty quiet in the west wing too, after the bad ones have swallowed their drugs and all the doors are locked. It’s quiet in the sperm bank, and in the evidence review room down at the station. The judge’s chambers can be silent, and the elevator down to the street level, especially when it’s full of people who are afraid of each other. Chernobyl ought to be making no noise by now. A temple overgrown with vines is quiet. It’s quiet in the parking lot behind the Lutheran church. The airport is never quiet, but it sometimes seems like it is because everyone’s ears are stuffed up, and the gigantic roar of jet engines manages to go unnoticed. A derelict truck is quiet. The page under my pen is quiet. Behind my eyes, I wish it would be quiet. A coffin is quiet, a grave is quiet, a jewelry store is hushed by plush carpeting. Inside the glass cases, not a sound.
+
+A room where CDs are packaged is quiet, unlike the slaughterhouse. Thunder fills the space under the highway overpass, but you wouldn’t know it to see that old guy sleeping there. You’d think it’s quiet. The bookstore is quiet, the biblical figurines store is quiet, the aisles of Home Depot where the lengths of beaded chain sit wound on huge spools are deathly. The box where I stowed my old journals is absolutely uninterrupted. The time of the dinosaurs, or after the alien invasion, might have big pockets of silence, though the sound of ferns growing or buildings collapsing might mar these situations.
+
+\
+**Animal Locomotion**
+
+We have been litigating for almost twelve years for release of these photos.
+
+The most reassuring forms of animal locomotion belong to the symmetrically four-legged. Dogs, horses, and sheep hit the ground with each hoof or paw in a prescribed rhythm, either in pairs front back or the opposed corners. Their gaits can be classified ambling, loping, cantering and so on, a nomenclature related to the pattern of foot fall and the height and force of impact, resulting in speed or slowness, hurry or relaxed moving around the earth. When this kind of four-legged animal comes to a stop, its feet stand planted like a desk or a dresser. Both the motion and cease of motion of these animals we most keep near us assure us of order and domesticity.
+
+If the legs are of uneven length, then we have the hop or bound, as in a rabbit or a cricket, creatures that send themselves startling up and out, propulsion mainly from the back. Some animals have four legs evenly distributed, but the appendages are only weak and toy-like. The lizard scurries along, too much belly interfering, as if its tiny limbs were wearing away. Animals dive into holes, in the ground or even under water, the muskrat poking its nose above the pond surface, tail cutting a line behind it, and then suddenly vanishing underneath. A squirrel bolts up a tree, an upward swarming, barely hanging on. This motion’s major characteristic is the sound of the claws catching and releasing. The squirrel can repeat this motion downward as well, head first, usually with more caution.
+
+The sideways scuttle of the crab, the sinuous belly rub of the legless. The flapping of wings, and the flapless glide. The hop and stiff-legged strut of a robin on the ground. A rooster does the same, picking up its feet as if they were curious implements, like the fork you’re given at a banquet in a dream. A hawk might sit on the top of a telephone pole and not move for hours.
+
+The movement of letters back and forth, tongues licking the stamps, fingers opening the envelopes, lips moving over the imprecations. Men planting themselves in the corner of the interrogation room, laughing. The motion of the finger on the camera shutter is hardly in the same class, a movement but not through space, yet the resulting image lets us travel back in time, to that instant of cowboy-like wave, one hand up in the air, the other smacking down on her naked rump. The gleam in his eyes, the hair on her neck. Another form of locomotion might be “the power that visual evidence has to galvanize public attention and concern.” The viewer springs back as if bitten, as if stung. Or the opposite movement, the lids coming down, the obstinate throttling of feeling, reaction, or comprehension.
+
+The locomotion of an entire herd can be mapped in the aggregate. Each individual member pounds its delicate hooves, curling the knees, leaving the ground entirely in mid-stride. The photographer Muybridge demonstrated this airborne gallop, yet the motion of film has since become much more important than the motion of the animals themselves. The threading of film through the camera, the filing of audience into the theater, the antics of creatures of all shapes shown on the screen. Men riding horses, clinging to them while they rear and buck. A slow shot of a woman’s face, dawning with realization. The members of the herd spread themselves out with shifting distances between them, mothers slowing for their young, the fastest ones making way for the more decisive ones when a change of direction is called for. The pattern of the flight of the herd represents a higher class of locomotion, a spreading, like a liquid, but in packets.
+
+We have been litigating for almost twelve years for release of these photos. The photos mostly show close-ups of body parts, including arms, legs, and heads, many with injuries. The motion of fingers on keys, sending and filing, typing sentences and conveying commands—cut and paste, reply all, cc—seems like it would be the engine for a grosser motion, a man catapulting off a couch, the click of heels as the admin runs down the hall, even the halting squeak of the janitor hauling his cart of mops and ammonia spray as he comes to clean up her distressed vomit.
+
+Water striders boat themselves across the surface of lagoons. Underneath, unseen creatures, millions to a teaspoon, wriggle along with the help of hairs, and gulping. The ciliates can divide asexually, a way of making more creatures. This too could be understood as locomotion, the two stepping away from the one. The worm passes through the soil by eating it, combining forward motion with digestion. The motion of flies in a living room combines with an audible element, the buzz getting louder as it veers towards our ears. The motion seems to have stopped. The poor thing might not have eaten for days. We find it belly up on the window sill, covered with dust. At some point, it expired of sheer weakness.
+
+Fish leave no tracks in the water. Bats and swallows criss-cross the evening air, so fast they seem more like marks scored with fine pens.  Water birds can move through two elements in a single propulsion. Coots and diving ducks draw themselves under, rocking head down and then pulling the rest of the body behind them, as if closing themselves into another dimension. The common mallard can’t make that transition, and instead bobs its tail up while the head roots around unseen. This is a motion that makes everyone laugh, even babies in their strollers. It must be that halfway actions are humorous. They remind us of failure. Once while walking the cliffs over Lake Superior, I saw a cormorant glide through the air, skim the lake surface, and then dive under to continue its flight below the water. The water is so clear and shallow there that I could see the bird just as easily through the blue, continuing to beat its wings, but now this motion would be called not flying but swimming.
+
+The centipede doesn’t actually have one hundred legs, but imagine taking the time to count them, with tweezers, holding the thing upside-down, every now and then breaking one off because you’re so clumsy. Say there are sixty-eight. It swishes them in succession, having more in common with the twinkling of stars than with the agilely balanced placements of fleeting hooves. I almost can’t credit the centipede with balance, far less the millipede, or the caterpillar who in its entire life moves through the leaf it was born on, utterly destroying its home while scarcely lifting its little pincers from it.
+
+We have been litigating for almost twelve years for release of these photos. The photos mostly show close-ups of body parts, including arms, legs, and heads, many with injuries. There are also wider shots of prisoners, most of them bound or blindfolded. Our catalog of animal locomotion would have to include the limp, the crawl, the stagger, the blind and hooded leaning on one another as they are driven from behind by relentless keepers.
+
+The lamprey is capable of its own exquisite shimmy, an undulation beneath the waves parallel to the current. Its body seems like a representation of water, as if it celebrated with its whole being the goddess who gave it life. Then it sticks its suckers on another animal, and the lamprey’s locomotion becomes secondary to its host’s. The host’s motion becomes fitful struggle, while the lamprey continues to make its soft flowing motions, the head immobile, spine flexible, like those little girl Irish dancers.
+
+The photos released today are certainly the most innocuous of the two thousand still withheld. A 73-year-old Iraqi woman detained and sexually abused, forced to crawl around on all fours as a large man rode on her, striking her with a stick and calling her an animal.
+
+The cold-blooded animals move in surprising ways, but often don’t. A lizard may sit stone-like for hours, and then whip out its tongue. The coral sits for its entire lifetime, changing only by getting larger and by shedding. If its intake and outtake are equal, it may on the average not move in any sense, though there may be some growth and some decline within the inert parameters of the median. Other animals may move every second of their existence, never resting, as is commonly believed of sharks. It could be true, too, of the tiny organisms pulsing through pond scum and seen only with a microscope. But the biologist needs to sleep sometimes too, and can’t stay up all night to determine if the creatures ever rest. Maybe they move only when observed.
+
+The writer holds herself still, only her fingers moving. She seems restrained by some inner supervisor, who demands her correct posture. She waits, like a servant in a period drama, stiff against the sideboard while the rich folks eat moules mounier. Her facial tautness and spinal rigidity mask the thoughts seething in her brain. But that’s not locomotion.
+
+Animals that hang from trees—the hand over hand swinging of the monkey, or slow shuffling of claws of the sloth—it’s as if the trees have grown there just so these animals can have something to move past and through. The long grass waves itself closed over the panic of the rabbit, as if that were the motion, the shifting and settling and the long line across the prairie. The rabbit’s movement itself is much jerkier, a moment by moment pounding of the ground. Animals that roll, like a barrel? Children play this way, rolling down a hill. Nothing in its right mind does this as a way of getting anywhere.
+
+\
+**Eating Insects**
+
+It’s a reasonable proposition. The benefits of eating insects should be fairly obvious: a source of protein that thrives in dense, crowded living conditions such as a cage or box. Their bodies harbor minerals, vitamins, and other organic materials that have been depleted from our soils. They lack the staring eye, the humble head, the recognition of their own death, that other meat sources plague us with. Not that they don’t have eyes, but insects don’t tend to grasp our souls with them.
+
+Mostly they eat us, not the other way around. They inject us with poison and suck our blood. They chew up our corpses and return us to the earth. They strip our flesh. They whiten our bones. They eat books in our libraries. Embedded in the binding, they come out at night and erase certain vital lines. We already eat them accidentally, the weevils ground up in the flour, the gnats stewed in the tomato paste. No model wedding cake in a bakery window is complete without its coterie of fly corpses at its feet. Allowable percentages of wing fibers and mandibles are part of doing business in a Ritz cracker plant. You can’t even see those little black legs and hooked feet. We should go at it whole hog. What’s stopping us?
+
+Cicadas sing for us. Roaches provide interest to the dark corners of our motel rooms, scurrying out of the way of our sudden light. Everyone has a soft spot for fireflies. Suburban nostalgia. Ants clatter around our dropped crumbs when we eat our hasty sandwich in the concrete plaza outside the office building. They don’t seem to fear our eating them. They would never suspect we’re about to sweep them up with a broom and drop them in boiling water, then dry them on a grill.
+
+Cricket flour. Cricket flour patties. Cricket flour added to school lunch macaroni and cheese&#8211;kids thrive on it. Do they become soulless? No, more communal, singing in harmony. Free from care.
+
+Maggots grown in cheese likewise flavor themselves, so that the cheese tastes like cheese, and the worms taste the same, except for their prickly packets, the texture on the tongue. Some sailors had been
+
+<p style="padding-left: 60px;">
+  Of course, the question is why it is necessary at <em>this time</em>
+</p>
+
+<p style="padding-left: 60px;">
+  grasshoppers turn an appealing red when boiled or fried
+</p>
+
+<p style="padding-left: 60px;">
+  but fighting, as always, that horror movie image of a mouth open on white, wriggling grubs, the legs moving, little spots of eyes
+</p>
+
+staring out, so that the consumer in this case might be called the victim.
+
+The worst industrial bug farms, mats of crawling bodies living their days out in filth, would be welcome to them, a step up. No calloused, self-hating men are needed to round beetles up for the slaughterhouse, running among them with stringy arms held wide, snarling “you shitheads, you dumbasses.” We can blind them or gas them, trim their horns or dock their tails, and they don’t feel it, and don’t mind. They eat their own young, crunching up eggs or little larvae, and this doesn’t put much of a dent in their overall reproductive capacity. We can shut them in a giant three-story concrete bug factory with a dead elk, and come back months later for the harvest. They aren’t aware of our neglect. They want nothing to do with us. They don’t seek to know us, or to harm us. Grasshoppers will never look at us with that mournful eye, head turned to the side, that says, “I’ve done everything you asked.”

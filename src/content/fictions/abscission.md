@@ -1,0 +1,162 @@
+---
+_schema: default
+title: Abscission
+draft: false
+date: 2023-04-15T15:51:00-04:00
+authors:
+  - profile/anna-badkhen.md
+subgenres:
+  - Illness
+  - Relationships
+  - Loss
+tax_issue: AGNI 97
+tax_format: Print
+private: false
+---
+And now Delia can’t find the potholders. Not on the hook by the oven, not on the kitchen island, not in the drawer where they keep their kitchen towels. She opens the cabinet above the sink, then the one next to it, the trash nook under the kitchen sink, the dishwasher—the dishwasher. Bingo!&nbsp;
+
+Delia tramps down the steps to Nora’s basement studio. Nora is standing waist-deep in the cut-paper scroll she has been making for a solo show, hundreds of feet of scalpelled paper that pleats over itself in heavy lacy curlicues. In the draft from the door the paper heaves and glugs like waves, and an image floats into Delia’s mind, of their first time by the sea together, how Nora, waist-deep in the surf, like an Aphrodite being born, reached her arms for Delia to come to her. And here she is, in the middle of all this paper froth, her ebbing Nora, arms again outstretched: an actress performing in the middle of a flood-scene stage set. Delia is out of breath from stomping down the stairs and from being annoyed. Was this a prank or is her woman really losing it? Delia’s hands are sticky with the garlic she was mincing for their salad before the oven timer went off, and now the potholders will stink of garlic. But when Delia brandishes the potholders at Nora, Nora acts pointedly untroubled. She waves at Delia the way one would beckon a small child, with quick-quick fingers. Her bracelets jangle. The scalpel in her right hand catches a glint of evening light.&nbsp;
+
+“Hi babe!” Nora says, all cheer and nonchalance. “Almost done here, up soon. You okay?”&nbsp;
+
+Delia is just too angry to respond. She clomps up the stairs and out onto the porch, lights a Newport, and dials Amy.
+
+It’s like a nightmare forest, Delia says, omnidirectional and ever-thickening, and at the rate Nora’s mind is going, the forest will grow more and more dense until she can no longer see any path at all. It’s been a stressful year, the pandemic, the world on fire, the election madness, Delia says, but potholders in the dishwasher?&nbsp;
+
+“Wow, Dee, why do you put it on Nora?” Amy asks.&nbsp;
+
+“What do you mean?”&nbsp;
+
+“How are you so sure it wasn’t you?”&nbsp;
+
+“Me what?”&nbsp;
+
+“I mean, you’re the one having incidents.”&nbsp;
+
+“What incidents?”&nbsp;
+
+Amy is quiet for a beat.&nbsp;
+
+“And what does Nora say?” she asks.&nbsp;
+
+“Oh, Nora acts as if everything is perfectly normal! I mean, she denies that any of this is her, she’s like, ‘You’re just distracted,’ or ‘You okay?’ No, I’m not okay! She’s making it seem like I’m the one out of my tree, causing petty tiffs over nothing.” It is as if they never ended, the squabbles they’d had around the time of Delia’s affair, though back then Delia was purposely scratching for flaws, picking at Nora, trying to feel less bad about herself.&nbsp;
+
+What’s with all the sylvan analogies, Amy asks, maybe you just need to get out of the city, and when Delia doesn’t laugh Amy says to hang in there, and that if Delia needs Amy to come visit she can, some weekend; she says she can even make it a long weekend if needed, she would take time off work, and they agree that Amy will come next month, her mother’s health permitting. Amy hangs up before Delia can ask what’s wrong with her mother.
+
+She walks around to the side of the house to drop her cigarette butt in the trash, and almost trips over a garbage bag abandoned halfway between the porch and the trash cans. For fuck’s sake, Nora. In front of the house, tree crowns carve the amber streetlight glow into the Chantilly lace of Nora’s scherenschnitte. The thrum of cicadas and window A/C units, mussy yew hedges tinseled with discarded surgical masks, firefly Morse code. Late-July sidewalks a wrack line of pale green locust blossoms. Delia stands for a minute, the quag of rotting petals under her soles.&nbsp;
+
+<p class="text-center">~&nbsp;</p>
+
+Back in the kitchen, Delia matchsticks a scotch bonnet and thinks of the way things were when they were new. Nora arrived in Philadelphia on a tourist visa halfway through Bush’s second term. A glorious apparition in the arrivals lounge, with two suitcases, a laptop swaddled in a rolled-up scratchy kilim, and no plan to return. Two weeks later she rejected Delia’s suggestion that she file for asylum. (Stop being so practical, it’s unsexy, Nora told Delia, and slipped three cool fingers down the waistband of Delia’s jeans and pulled, and that was when Delia first knew she was afraid of losing Nora.) Nora was twenty-six, eight years younger than Delia. No wonder she leaves stuff lying all over the house, Delia thinks, and scrapes limp orange shavings into the salad bowl with the back of her knife. She’s still a kid.&nbsp;
+
+But Nora is only selectively oblivious. She quickly figured out how to live under the radar. Her patrons did not seem to mind writing checks to Delia, the one with the bank account, perhaps they even found the modicum of affiliated risk exotic, just as perhaps they found exotic buying art by a queer Arab Muslim woman from the Levant—they seemed to like the term “the Levant,” the sophisticated way it filled their mouths. Her English was flawless, courtesy of American University in Beirut, and she was light enough to pass for Italian and young enough to think she didn’t need to worry about things like American politics or health insurance. It was Delia who did the worrying. What if Nora got hit by a car? What if Delia got audited by the IRS? What if Homeland Security found out and Nora got deported—what if, Delia thought but never dared to say, not even to Amy, what if Nora wanted to get deported so she would no longer have to bear Delia’s unabating, unsexy dread? Delia tosses the salad, pulls a bottle of red Bordeaux from the wine rack. They were drinking red Bordeaux when Obama legalized gay marriage. She and Nora were watching the news on Nora’s laptop in the living room and Delia put aside her glass and slipped off the couch and knelt on the kilim, and took Nora’s darling hand in both of hers and laughed and said, “Babe, will you be mine?” and laughed again at first when Nora said, “I already am but no thanks,” and then she saw Nora was serious and said, “Wait, for real?” and they had their first meaningful fight.&nbsp;
+
+“You just like to be so fucking special!”&nbsp;
+
+“I *am* special. We are special! We don’t need to be married to prove it.”
+
+“There is no other way for you to be legal in this country!”
+
+“I don’t want to be legal in this stupid-ass country! When I can be legally gay in *my* country, then we can pick up the matter again.”&nbsp;
+
+That was another thing. Nora insisted on being Lebanese except when it came to dealing with the Lebanese. She never spoke Arabic at the Middle Eastern grocer, or to the falafel guys who ran Delia’s favorite food truck, and she never went to the mosque, though they lived within a half-mile radius of at least four. She also never: planned trips, drew up budgets, shopped for groceries more than a day in advance, talked about retirement, anticipated friends’ birthdays, not even Amy’s, did any Christmas shopping, or set up appointments of any kind. How she managed to keep her patrons was a mystery to Delia. Perhaps they found her laissez-faire attitude exotic too. When Delia wanted to host a party, she knew not to involve Nora in the organizing, and she knew not to involve Nora when it came to bigger things like house repairs or buying a new car. Nora’s commissions were feast or famine, and Nora seemed fine with that, though she knew that Delia was not. She also knew how to read Delia’s skin for stress, knew when Delia dropped weight because she was too worried to eat, and had developed a choreography of avoidance, fudging and castling about anything that in her estimation could make Delia feel anxious. It was an evasive tic, which Amy told Delia to write off to Nora’s upbringing in a culture where women were expected to anticipate and soothe men and elders—and you, said Amy, are her honorary man.&nbsp;
+
+“Let me get this for you.” Delia didn’t hear Nora come upstairs, but now she is at Delia’s elbow, gently prying the bottle from her left hand, the flathead screwdriver from her right. “I’ll set the table, babe, don’t worry about anything else. Have a seat.”
+
+Don’t worry about anything else. There were always equivocations, and there were constant reassurances, as if Nora could guess what would rub Delia the wrong way. After sixteen years she guesses correctly most of the time. But this also means Delia never knows if Nora is telling the truth or performing some kind of preemptive damage control. Her calibration is as intentional as her papercutting. As anything she does, Delia thinks, watching Nora select a slice of mango from the salad and flick it toward the bottom edge of her plate, then cut the crescent in half, then in fours, then finally shrapnel each morsel into quarters. The way her fingers purse around the pewter stem of the fork, the exact punctuation of her knifetip, the surgical knowledge of these hands that will filigree yard upon yard of Lenox paper into fantastical openwork as impeccably as laser printer—no, better, Nora often corrects her, because human handwork always contains mistakes so as not to offend the perfection of God. Hands that origami into Delia’s places, that make her unfurl. Delia recalls a YouTube video, edited footage of a bodycam on a supposedly demented person. All you could see in the video was that person’s hands—kidney-spotted, veiny hands, like an old woman’s, not at all like Nora’s. The hands brewed a pot of tea and put it in the fridge to steep, hardboiled an egg then tried to fry it, paid bus fare with a movie ticket stub . . . Delia wonders if muscle memory will go too, if their hands will one day forget how to bring each other off.&nbsp;
+
+The mosquito drone of alarm returns, builds up. What was Nora doing with a screwdriver and the wine bottle just before dinner? And what about that garbage bag? The potholders? How to ask her about it? Nora will have some ready rationalization, just as she always has a ready rationalization for absolutely everything she does and says. On Delia’s plate, her own salad sits untouched, insurmountable.&nbsp;
+
+“Amy says she’ll come next month,” she declares at last, and Nora says, “Okay, babe, let’s see what the doctor says tomorrow,” and Delia thinks, Jesus, what goddamn doctor? Is this woman messing with her on purpose? But just as she is about to confront Nora, she remembers: oh yes, of course, the doctor tomorrow, Doctor Tsipkin, and the distress of having blanked on something so major triggers a hot flash, and Delia can smell it, the violent sour of wild mushrooms gone to slime. A cold drop of sweat worms down her butt crack, and Delia’s irritation turns to Nora, for witnessing this momentary weakness. Maybe Amy’s right, maybe she does need to get out of town.&nbsp;
+
+<p class="text-center">~</p>
+
+At the clinic Doctor Tsipkin, their GP, lowers his head while Delia assures him that she feels fine, considering the pandemic. Perhaps bowing helps him pay attention, but Delia always pictures her words sluicing over and past his glabrous skull, dissolving into the antiseptic beyond, inconsequential. Then again, she has nothing consequential to report. The semester went well. Her undergrads were, as always, a delight. She feels perfectly healthy. (She hides the smoking from the doctor and from her health insurance, figures one a day can’t do much harm or be traced.) She is looking forward to getting some writing done over the summer break. She doesn’t think this is the time to mention that Nora has been acting strange, not with Nora sitting right next to her, in one of Doctor Tsipkin’s uncomfortably upholstered metal chairs. If something is wrong with Nora’s mind, the doctor would probably prescribe an anti-anxiety medication, and Delia and Nora have long agreed that they didn’t trust the effect psychotropic drugs could have on their creative work, especially Nora’s. Anyway, it’s probably just stress.&nbsp;
+
+When she is done talking, the doctor straightens up and nods. Then he doesn’t speak to Delia, he speaks to Nora.&nbsp;
+
+“And the latest accident, can you describe it for us, please, Miss Nora?”&nbsp;
+
+“What accident?” Delia says to the doctor. “What accident?” she repeats to Nora, and Nora reaches for Delia’s hand without looking and squeezes it and says, “It’s okay, babe. I got this.”
+
+For the first few weeks, Nora tells the doctor, Delia was just losing track of negligibles, like whose turn it was to vacuum. Or there would be new little things amiss, or old things more tangibly amiss than before: an unflushed toilet, or clumps of raisins that Delia would stuff into her pockets like a kid sneaking snacks and then forget—just this morning they found a clammy glob in their bed. But then, last Thursday, says Nora, she was cleaning up after supper, “and when I walked into the kitchen Delia was scraping leftover cooking stuff—garlic peels, tomato cores, stuff like that, garbage really, you know?—she was scraping it all into the water pitcher, and then she poured some olive oil on top of that, and put it all in the fridge”—Nora turns to Delia, and Delia sees Nora’s eyes above her mask pool with worry—“and when I asked you what you were doing, babe, remember? I’m sorry. You wet yourself.”&nbsp;
+
+What Delia remembers then is not the actual scene but its sensations: the jolt at Nora’s disorienting yelp, the shock of suddenly not knowing where she, Delia, was, turning into the not knowing what she was doing in the middle of the kitchen—then the wet heat blossoming on the inside of her right thigh. And then, and most of all, the shame, abrupt and ravenous, rising as a deep blush, a gasp: what have I done? Or maybe it’s the remembering of it now, in Doctor Tsipkin’s office, that feels like shame to Delia, real mortification that engulfs her all at once. A dreadful panic comes over, she knows she’s doing something very wrong but can’t seem to get what right would be. What is it? She must have said something because now both Nora and the doctor are reaching for her, shushing, It’s okay, it will be okay, it’s okay, shh. And then Delia remembers this office from their last visit, it must have been early spring because she remembers taking off a coat and then a sweater and then a thermal shirt. And she remembers how Nora bargained with the doctor. Pleaded that Delia’s Covid had been mild, she’d run a fever for three days and we didn’t have to go to the hospital, how could she possibly get dementia from that; and besides, both of them had had Covid at the same time so it must have been the same kind and she, Nora, was fine, couldn’t it be something else instead? Could he maybe please check? And Doctor Tsipkin, head bowed, said something about a growing number of sudden early-onset cases the virus seemed to trigger sometimes, and how it was too soon in the pandemic for any long-term prognoses, though definitely there were rapidly progressive examples, and it was possible, in Delia’s case—she remembers him saying, “in Delia’s case,” as if she had already left the room, mentally—that a brain invasion had occurred, and because she hadn’t been hospitalized the invasion had gone undetected. An unfortunate complication, he said, and Delia wanted to shake him the way Nora is shaking her now, except she didn’t want to shush him, she wanted to scream, Look up and look me in the eye and give me one example of a complication that’s fortunate.&nbsp;
+
+<p class="text-center">~</p>
+
+Why couldn’t it have been something else, anything else, Delia bawls on the phone with Amy before supper. A professor in her department had spent a week on a respirator and a month later his blood pressure dropped to sixty over forty and now he has to drink coffee all the time. Another friend slept for four months, eighteen, twenty hours a day. He’s lost so much weight! He would wake up and make himself a peanut butter sandwich but then fall asleep again before he could eat it. A neighbor’s stepdad got such severe anxiety post-Covid that his doctors put him on Xanax. Amy’s mom’s intestines knotted up and she needed several colonoscopies—why couldn’t it have been something like that, Delia sobs, I don’t need intestines, I could stand to lose some weight, Nora’s been baking so much, in fact she’s baking again tonight, and I love coffee, Amy, what if I forget all this, what if I forget this conversation, what if I forget you are my friend, what if my fucked-up brain is making it all up as I go along, and at the other end of the line Amy draws in air and says in a very small voice:&nbsp;
+
+“Delia, my mom has stage-four colon cancer. You know this, I told you this, remember? I told you last month? They said nine months if we’re lucky. My sister’s moving in with her, I think I told you she’s between jobs.”&nbsp;
+
+<p class="text-center">~&nbsp;</p>
+
+How could she have forgotten about Amy’s mom? Delia and Amy have been best friends since high school, though they’ve never been lovers. “That would be,” Delia said one sleepover after passing Amy a joint, and Amy, struggling to keep the smoke in, creaked the rest: “Incestuous!” and they laughed so hard Delia fell off her camp bed, spilling sparks on Amy’s carpet, and they laughed even harder as they put them out with their bare hands. It was Amy who introduced Delia and Nora. Amy was posted in Beirut then, and Delia visited, her first and only time in the Middle East. She’d expected henna parties and dainty cups of mint tea, and instead there were witching-hour bar crawls, and sailing, and grilled prawns on the beach, and, one evening, a gallery opening, mostly rose-thorn themed grotesques, except in one corner where, in a tempest of white tatting, this gracile woman shimmered. Her gaze held Delia’s and then, as if in recognition, softened and settled, like the yolk of the sun setting on water. For the remaining week of her visit Delia hardly spent any time with Amy. She can shuffle the images in her head like photographs: she and Nora on the Corniche; she and Nora drinking wine from a bottle in the resolute afternoon shadow of the Temple of Bacchus; Nora waving at her from the spume of the slow Mediterranean swell. Nora and Delia at Nora’s first solo show at the Whitney—no, that was much later, a different photo album. Two months later Nora moved to Philly. Fourteen years later, Lebanon decriminalized same-sex relations, and instead of again asking Nora to marry her, Delia fucked a guy in her department.&nbsp;
+
+“We are fighting all the time,” Delia told Amy after the affair, and Amy, who is always forthright, often to the point of crudeness, said: “Fighting’s good. It means you guys have the kind of intimacy that allows you to be brave enough to fight. That, girlfriend, is not easily earned.”
+
+“But it is really awful!” Delia said, and Amy, whose last serious boyfriend had left six years earlier, said, “You know what? I envy that.”
+
+Why did Delia cheat on Nora? Because, Delia explained to Amy, Nora refused to project into the future with her, leaving Delia to worry alone about what would happen—to them, to Nora, tomorrow, next month, five years from now, especially since the Muslim ban. Nora stayed forever in the present, scalpel in hand, oud music or a symphony on the speakers, carving what Delia, in moments of despair, and never out loud to Nora, called her paper dolls. Her schadenfreude scherenschnitte. Delia felt abandoned, she told Amy, and Amy hmmmed and asked why Delia couldn’t choose to stay in the present with Nora instead. And they both laughed.&nbsp;
+
+“Maybe you just missed dick,” Amy said, and they laughed some more.
+
+Delia never told Nora, though she came close, once, when they went to Marfa. She ended it after a week, and eight months later the pandemic began. Then Philadelphia filled with the siren song of ambulances and cop cars, and Nora stenciled a shadowgraphy of helicopters and hearses and protesters and men hammering plywood over corner shop windows; and in the lidded rage of night curfew, feet on the kilim, Delia and Nora watched the mushroom cloud over Beirut; and then the university resumed in person and Delia came home with Covid, which to her felt like a cold but which laid up Nora on the guest room bed for a week. They gradually recovered, first Delia, then Nora, or so they thought, and for a month or two they were back to their usual sequence of lovemaking and squabbles and avoidance and resentment, until everything began to slip.&nbsp;
+
+<p class="text-center">~&nbsp;</p>
+
+Amy sounds testy when she speaks again:&nbsp;
+
+“Speaking of remembering. Did you ever end up watching that YouTube video I sent, of a person-in-dementia’s hands? You’re not there yet, are you, girlfriend?” Delia can hear her clanking dishes at the other end of the line. “Because if you are, we should be seriously worried about your physical safety.”&nbsp;
+
+Should she, Delia, worry about her physical safety? Can she trust herself to know? What about Nora’s—illegal and uninsured and living with a demented girlfriend? Is anybody physically safe, really? It’s a little after seven and the sun is almost two hands above the rowhouses, but it glows the same deep orange as it has since morning: the jet stream has blown in smoke from the West Coast wildfires. When it happened last year, it took Delia and Nora hours to learn what was causing it, that baleful filtered light as if from an eclipse but the sun seemingly whole. The haze veiled the sky for days, and for days they shared a kind of grief and talked about how apocalyptic it felt, how foreboding, how the Beirut sky must have looked like that after the blast. This year Delia recognized the sinister light immediately, and neither she nor Nora mentioned it.&nbsp;
+
+“We get used to the damndest things,” she says into the phone.&nbsp;
+
+The eerie light flattens things out, the trashy hedges, the dropped locust petals. Across the street, a familiar scene: a neighbor’s kid kneeling on sidewalk pavers. She appears to be trying to talk an alley cat into being friends. She stretches her hand toward the animal the way Nora did with Delia on their first outing to the Mediterranean, and also maybe, Delia recalls, at some point fairly recently, but she cannot quite place the context. Doesn’t matter. The girl shifts from her knees to a squat and the cat crouches, ready to dash off. Today they seem to Delia a few inches closer to each other than yesterday, though it’s hard to tell. They’ve been at it since spring. Such patience.&nbsp;
+
+The sound of Amy doing dishes has stopped, the sound of running water. Is it supposed to be Delia’s turn tonight, or Nora’s? Would Amy know?
+
+“Hey,” Amy says, “I read this article about how some people with dementia experience an increased sex drive. I know this is a fucked-up question, but do you think you could possibly be actually seeing this guy? I mean, you’ve forgotten that you’re gay before, so there’s a precedent.”&nbsp;
+
+“Which guy?”&nbsp;
+
+“The Indian-sounding guy from last week, mister whatshisname? Remember? You said you’d invited him to dinner and Nora found out?”&nbsp;
+
+A memory flickers in: a beige suit and a pale blue fedora, impossibly polished wingtips, a large bouquet wrapped in cellophane. Delia on the porch, the man at the bottom of the steps. Then the front door behind her clangs open, and there is Nora, feet planted hip-distance, her unwedded boss wife, and the man lowers the bouquet and tips his hat and walks away. Did this really happen? Who was that man? Why does Amy know about him? Delia pulls the phone from her ear, studies it as if she could find the answers there. Then she brings the phone back up. Something has just occurred to her.&nbsp;
+
+“You know,” she says to Amy, “last week I assigned my class this poem about marriage being ‘a series / of increasing / intimacies, a slow / sweet collapse into / oneness.’” She senses, tentatively, as if with the periphery of her heart, an ineffable, terrible loss encroaching. She and Nora should be close to oneness now, but their collapse is of a different order entirely. Everything seems to be collapsing away from Delia. “Amy, do you think oneness ever really happens?”&nbsp;
+
+“Dee,” Amy replies, her voice gentle. “Girlfriend, you didn’t have class last week. It’s July. You’ve been on medical leave for months.”
+
+Suddenly Delia feels so tired. She doesn’t want to talk on the phone anymore, but she doesn’t know how to tell Amy. She lowers the phone, lays it softly on the porch, and presses the red button. Then she takes one last drag, stubs out the cigarette, lays the butt on the step next to the phone, and thinks of poor Nora. She will go inside and hug her. Just a few more minutes, then she’ll go in. It’s crazy-making, this sunset-colored sun so high up in the sky.&nbsp;
+
+<p class="text-center">~</p>
+
+At supper Nora helps herself to a large slice of apple pie, which she’s baked the way Delia likes it, with walnuts and slivers of fresh ginger. She places the slice with the scalloped crust toward herself, tip aiming at Delia, then pushes it left and right to center it on the plate. A pendulum measuring something. After she deems it symmetrical enough—Nora says symmetry is a Libra thing—she rests her knife and fork on opposite edges of her plate and reaches both hands across the table for Delia’s and squeezes them, and her face gleams with utter and serene devotion, that luminosity Delia loves. In fact, she thinks, as Nora returns to her pie, she knows of no one as faithful, as present to their partner, however much she would have preferred a different sort of presence, something less&nbsp;*A Thousand and One Nights*, less *Sturm und Drang*, more practical. With Delia ill, no longer in the present or even the future but in some kind of sideline confused pocket of time, what will happen to Nora, so disorganized?&nbsp;
+
+Nora says, “By the way, babe, I made us an appointment with a neurologist for next week.” She stays her hand just as Delia is about to shake habanero sauce all over her dessert.&nbsp;
+
+Delia wants to ask Nora about the man with the bouquet and the fedora, but she is afraid, because she’s not entirely sure there was an actual man with a bouquet and a fedora. Why would there have been a man like that at her porch? And what would Nora have said to him to make him go away? Was it possible the man had been the man she’d slept with? Could he have rearranged himself into her memory when Amy—did Amy mention him? She needs, if she can remember, to call back after supper and ask.&nbsp;
+
+Delia smiles at Nora across the table and Nora smiles back. Delia almost told Nora about the affair right after she ended it. Nora had a show at a gallery in Marfa, and the gallery owner had promised to arrange a dawn visit to Chinati—the best time of day, he explained, to see the Judds. Rather than putting Nora on the plane and worrying herself sick about the border patrol checkpoints in West Texas, Delia suggested a road trip. It was summer break. She drove. Nora deejayed: Bach, Lena Chamamyan, Ibrahim Ma’alouf, music Delia has learned over sixteen years with Nora but has never really gotten into. When Nora fell asleep in the passenger seat, Delia tried to imagine their future and for the first time could not.&nbsp;
+
+Delia remembers clearly how, at sunup after the opening, the fifteen untitled concrete boxes floated in fog and early light tinkered with the palisade of poplars by the road. Nora started on a path toward the concrete sculptures, and from the way the docent, whose name of course was Maurice or Sebastian or Augustus, followed her, Delia knew he had fallen in love with Nora as instantly as she once had. Her shining Nora, all bracelets and flowing gossamer dresses hugging that narrow waist and fanning over an ass that begged you to bury your face in it, and that smile that caressed every heart. Delia left them and walked a bit uphill past dried wildflower stalks beaded with quivering drops of dew, and entered the massive hangar where, during the Mexican revolution, U.S. cavalry had awaited marching orders, and later German POWs had made, or maybe dismantled, chemical weapons.&nbsp;
+
+The aluminum sculptures seemed suspended in slant light that turned from tangerine to gold to white. Delia took off her sandals and walked barefoot on polished concrete. Occasionally she squinted at the east-facing window to see if she could glimpse Nora in the lifting fog, sometimes in sight, sometimes not. Delia loved Nora’s work, its misleading whimsy, but in general modern art made her uneasy, like something she was supposed to understand in ways she couldn’t, and Judd’s *Works* reminded her of that. But the smooth concrete felt nice against her heels, solid. She reached the end of the hangar and turned back, and saw them then: three antelopes, a doe and two fawns, just far enough from any path, backlit in deep silver grass. As immobile as the desert. As Judd’s concrete boxes. And as soon as Delia looked away, they moved. White dots and copper stripes in all that outdoor diaphanous. More eternal than the art, the sky, anything.&nbsp;
+
+Delia found Nora and the docent at the two ends of a sculpture that looked like a giant matchbox felled on its side. Delia remembers a sudden misplaced pang of jealousy, and Nora must have sensed it, because as soon as Delia approached she grabbed her hand.&nbsp;
+
+“I was just telling Maurice,” she said, “I mean of course when Judd was making these works he knew they were going to interact with the light—”&nbsp;
+
+“Brilliant, right?” said the eager docent. “How did he predict *exactly how* they were going to do that before he put them here?”
+
+No, that couldn’t have been the conversation, no one talks like this. Delia sets her fork and knife back on the table and leans back in her chair. She closes her eyes. It is categorically urgent that she remember that day, the day she didn’t break up with Nora. She shuffles the images in her head: another huge concrete box, Augustus the docent, more antelopes, an afternoon nap in a sparsely furnished adobe cottage that smelled like creosote, the Milky Way, wine on someone’s porch . . . Wait, no, wine was later, did she miss it?&nbsp;
+
+“Did I miss it, my love?” she asks Nora, but Nora is already asleep, her perfect back turned to Delia. They are in bed. Delia doesn’t remember going to bed, weren’t they just having apple pie? She could ask Nora but feels like there’s no time for that now. She covers her eyes with her fingertips and presses slightly and forces her way back to Marfa.&nbsp;
+
+It is evening. Delia and Nora are taking a walk in a tallgrass preserve just north of town. The desert falls into a gold-blue peace and Delia watches out, as they have been warned to do, for rattlesnakes. Nora speaks. Judd, she tells Delia, purchased the fort in the late 1970s, and began making *Works* in 1980, and completed it in 1986, and had this incredible vision to make the space a permanent exhibit of monumental minimalist art, bringing in Richard Long, Roni Horn, Kabakov—&nbsp;
+
+“And then he died!” Nora exclaims, almost ebullient. “In 1994!”&nbsp;
+
+They have come to a fork in the path, and as always Nora is waiting for Delia to decide which way they should go, and that’s when Delia finally feels something for Judd. Not his art, she’d never get that, but the math is hollowing: how unfair for an artist—for anyone—to come into a new body of work, a new passion, and have so little time to fulfill it. It’s so fucking unfair. How little time we actually have. She wants to make things right somehow, to beg Nora’s forgiveness, but Nora is already hugging her, gathering her face into her exact and careful hands, saying, “But babe, shh, you’re missing something, there’s another thing, something we can’t know and can’t measure. Not in time, not in accomplishment, we have no idea—babe, just imagine how amazing it must have been for him to just be here in the moment.”&nbsp;

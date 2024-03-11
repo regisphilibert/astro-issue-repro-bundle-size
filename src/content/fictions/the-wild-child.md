@@ -1,0 +1,46 @@
+---
+title: The Wild Child
+date: 2005-10-15T09:34:34+00:00
+related_tax_publication_term:
+  - 676
+tax_issue: AGNI 62
+authors:
+  - profile/rikki-ducornet.md
+tax_format: Print
+translators: []
+
+---
+In those years when I bounded about on all fours, and on my elbows fled those I feared; when in those lucent days I scaled trees fast as a cat and sailed the treetops as the squirrels do, spreading their wings of fur and flesh, I was, I assure you, a better creature for all that, my desires both innocent and private, and what’s more, easily assuaged. When I thirsted for blood, I killed a thing, a rabbit, say, a squirrel seized sleeping in its nest, a green snake, a rat fat from the leavings in the fields. There was none to balk, none to scold me, no one there to hide her face in dismay beneath her apron’s ample hem. I had seen plenty of bats and frogs but never a priest, nor had I heard the words _nun_ or _needle_ or _butter_ and _bread_—although they say I must have been acquainted with human speech because I was quick to learn a thing or two and this despite my ferocious attempts to stop them, to stop their constant jabbering. Like crowds of crows they were, blackening the mind with their needling and nagging until I could no longer bear it. In order to taste the food they denied me for days in their righteous need to have me tamed, I—although their porridge and chops were like dead leaves in my mouth, and their drear puddings, plaster (I’d have preferred a fistful of fur or last winter’s bone black with frost and green with neglect)—I cried out from the cellar and up through the floorboards as best I could:
+
+<p style="text-align: center;">
+  <em>I repent!</em>
+</p>
+
+—and this between my pretty clenched teeth. For, yes: in those days my teeth were pretty, and people would pay to see them, stealing a look when my patron, my master, would slide his fingers into my mouth to peel the lips way back. What fine teeth the Wild Girl has! See the pretty blush on her gums! I’d show my tongue, seized as it was between my master’s thumb and forefinger—as when, in the wild, one seizes frogs in their boudoirs of wet grass. If they wanted more, I’d bug out my eyes, the whites burning brighter than the sunlight in those yellow days before I was forced into the bondage of roasted meat and venomous alphabets and spelling books and needlework and hymns stinking of the frass of centipedes and roots boiled to pap!
+
+<p style="text-align: center;">
+  <em>I repent!</em>
+</p>
+
+I cried up to them because I was hungry, having for who knows how many days chewed my boots in the fury of my banishment, the cellar darker and colder than the bunghole of a corpse. I chewed and recalled the taste of a hare’s crisp ear, its liver sweet as berries. _You’ll burn for sure!_ they’d shouted through the cracks as I clung to my knees to keep from gnawing my own fists; _The Devil’s on his way right now to fetch you and set you on fire!_
+
+I’d sipped my tears and the piss that in my banishment was the only thing that warmed me; once I yelled at them with all the fury in my heart: _Let me go back, then! Back to the woods! And I will drink squirrel blood and play with the bright beetles and bubbles in the stream. What business_, I offered, rationally—or so I thought—_is it of yours?_ For you see I was not yet broken. I would not repent. I would not kneel as they said I must to kiss the cold brass cross as bitter as the corpse of a spider. I could see no purpose in it, nor the sense in forcing my feet into those boots, the clothes that fisted up between my legs, the baths, the bath brushes, the combings, scourings, parings: I could not see it! A needle plied over and over into the white cloth, the prayers, the supplications, the answering to a name they claimed was now mine. _What need_, I’d asked, _for a name?_ When all the creatures have but one name, the same name that bounds through the air like dust motes and rain?
+
+_Marie!_ they’d spat at me as nails are spat from the mouth of a carpenter; _Marie-Angélique Leblanc!_ As though to call me Mary and Angel and The White could tame me and keep me safe like a lock of dead hair in a box. Ha! As if they could do that! But then in the cellar I grew hungry, you see: I grew peevish. Chained like a parrot to a post I grew weary and, to tell the truth, fearful for my mind. So at last I called up to them, humble, yet loud enough to be heard:
+
+> _I repent! I repent! Yes! Yes! That’s it! I do! And if the little Jesus_ _will have me, I’ll marry him quick as Jack and Jill go tumble; I’ll beg_ _our_ _Father for forgiveness, see?_
+
+They listened, their ears to the floor, and then they discussed my case. I could hear them pacing, back and forth, back and forth, as foxes do above the den of a hare. They’d let me stew—for my own good—yes, _stew_, they whispered (my ears are very, very sharp), _in her (ugh!) own juices_.
+Ah. So that was it. Well, I was hungry, and I’d be slavish—I no longer cared. _Prithee_, I’d said, _Prithee!_ _I’ll wed Jesus, I’ll let him suckle my tits, I’ll grovel before his little manger as the worms grovel deep in their muddy realms; I’ll polish the silver and stir the porridge and ply the needle_ (like the prig you wish me to be); _I’ll eat my pudding with a spoon and thank the Lord for it_—although it is meat I want, raw and smoking, the taste of it purple on my tongue. Wind me up! And I’ll perform for thee like a toy of tin upon a wire. I’ll dance for Jesus, poor boy! Tugging at his nasty nails that pin him to that strange tree of his as a crow is nailed to a barn wall; I’ll do a jig; I’ll curtsy and run about in circles in imitation of the toy monkey my patron’s daughter loves to set spinning on the kitchen tiles. How I loathe those toys of hers. I see no purpose there; I see purpose only in fat marrow bones, the soft throats of mice, mice I once _throttled in a trice_ (my patron’s words). Oh, I’d eat clay over pudding any day.
+
+I once told my patron how much I admired his little daughter’s throat. How to see the blood rushing there behind the ear stirred old memories. And when he blanched I reassured him—and the child so quick to weep!—reassured them both in those dulcet tones they’d taught me: _Oh! But I have found the Lord and He has shown me another, a better way!_ The way of roasted mutton and mittens and mattresses and bedroom slippers, _The way of Light and Love! Your dear child, the precious poppet, the angel, the dove! is safe with me, fear not, Master! Fear not, my doll, my rosebud, my little mouse! See?_ And lifting the bright cross from my bosom I dangled it in the sunlight before her face until she grew jolly and laughed. Then, to press my point and with the money I make showing myself to strangers—for I sit in the parlor on Wednesdays to speak to pious ladies about the woods and my onceuponatime life in the trees—I leapt from my chair and running into the lane bought her sweets from the vendor who was ringing his bell and calling out: _Honey drops! Chocolate drops! Three kinds of berry drops! Bright red cherry drops!_ So tightly did I clutch my coins the palm of my hand was bruised black.
+
+Once they let me out of the cellar, I thought it best I demonstrate my perfectibility—although, to tell the truth, I’d prefer to converse with ravens and crows than these feebleminded crones in bonnets who, should I absentmindedly snap up and swallow a fly, will fall over backwards in a dead faint.
+
+They have decided I am no orangutan, but instead an Eskimo. Because like the savage girl I was, an Eskimo will eat her supper raw and sauced with blood. They have taken my club and replaced it with a needle, and have seen to it that my hair is free of lice. I have lost all my teeth, but if this makes me less attractive, it also assures them that I am less a savage; after all, one cannot tear into a neck with one’s gums.
+
+This is how I spend my days: sitting in a chair, boots on, stays on, hair in pins, plying my needle as a bee plies the blossom: in and out, in and out. Wind me up and I mutter all the Holy Holies you wish. I make red poppies blossom at the edge of tea napkins (my poppies are too red for the dining room). I am as tidy as the drawer full of my patron’s underwear. And when on a Wednesday I am asked, I say:
+
+> _Well. In the woods I ran as naked as a snake and as black as an iron cooking pot. I would eat clay and the hot red hearts of sparrows. I would sleep in deep beds of brown leaves and bracken. And I would fly through the air as a squirrel does, its wings of fur and flesh stretched out like sails. And when the moon was full I’d laugh out loud to see how fat it was! Fat as the white belly of a frog near bursting with flies!_
+
+Having said this—and it is astonishing how often they wish to hear it—I sit back and watch them shudder and shift about on their chairs, their bottoms rolling this way and that, like marbles in a boy’s pocket, and their eyes sparked with excitement, yes! Their eyes sparked with something like envy.

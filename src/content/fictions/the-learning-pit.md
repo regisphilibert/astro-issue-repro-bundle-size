@@ -1,0 +1,52 @@
+---
+title: The Learning Pit
+date: 2012-07-01T09:33:12+00:00
+related_tax_publication_term:
+  - 406
+subgenres:
+  - Family
+  - Loss
+  - Parenthood
+authors:
+  - profile/risa-miller.md
+tax_format: AGNI Online
+translators: []
+
+---
+On your way home from the Stop & Shop, a bag of oranges tips in the hatchback and the oranges thud against the lift gate. At first you think it is the beat and stomp in your stomach. You were narrating instructions to yourself, as in one breath before the other. But the car is chock-full of groceries because your son, your only child who has started coming home again, is bringing his wife and family for the weekend. Short of saying he wants to see you**,** he jokes that there’s nothing like being back in the learning pit, what he calls your house—his old home.
+
+His insouciance, well-trodden, pricks that place in your stomach;  you are used to the way his jokes cover up, gloss over, conceal**.** But calling his old home the learning pit is at least a kind of honesty. Because, of  all the things your son could call the house he grew up in,  learning pit isn’t so bad—or so inaccurate. There he learned to eat his peas; he learned that you had limits you hadn’t grown out of yet; and there he rolled his eyes and dodged consequences with half a sentence such as, “what I really meant was,” and then let you fill in the blanks. You could even scroll through the list of learning pits in your life. The big places that had big lessons and the little places that had little lessons, or the ones that made a  parabola turning what-you-learned into curves even when you thought you were making straight lines. You drew parabolas in elementary school, there in the end classroom next to the auditorium where they tried to teach you, as they called it, “to speak your mind.”
+
+On the way home, with the car full of groceries because your son is bringing his family for the weekend, the oranges roll and thud every time you brake. So you drive the route without stop signs, past the fixer-upper yellow frame house on the double-size lot that you looked at  the year you and your ex-husband finally got a down payment together. You’d put in a bid for it,  then raised the bid, then raised it again but were surprised how relieved your ex-husband was when someone else outbid you. He said you were always a beat behind.  He said you didn’t need a house that would expand;  he said you needed a house closer to the elementary school so that things would be easier. And though you already knew he wasn’t a man of instinct or succor, you didn’t interpret the comments  in real time, since as it turned out, he was telling the truth because the mornings with your son only got harder when your husband wasn’t around.
+
+Past the yellow house you brake like a gasp you don’t mean to make. In your effort to drive home without stop signs you forgot you had a place you meant to avoid, the high rise where it turns out your best friend—your ex-best friend—and your ex-husband bought a condo a year ago.  Now the oranges are rolling around with what must be an apple juice bottle you bought for your grandchildren**,** who your son is bringing for the weekend. Your son claims—and you want to believe him—that he will meet his father at work for lunch, without his family and without his father’s wife.   You are still wondering what you should have wondered about your ex-best friend, but you are being tough on yourself: your imagination knots up to questions of truth and the fact that you don’t always like what you learn. So, the more you think about it, you like this idea of a learning pit, as if rightness, reason, observation swirl together at the bottom of something dark, naturally obscured, no one’s fault for not coming up for clarity and air.  Sometimes you don’t have to be there, but sometimes you do.
+
+Last week, you drove down to your home town; your parents are old and finally selling their downsize townhouse condo to move into an assisted living apartment. Dismantling your mother’s clothes closets and your father’s basement junk took most of a day, and the volume of their sundries and piles was oddly, sweetly, perfectly, maritally equal. For a job well done, your parents treated you to dinner<s> </s>at the restaurant, their hands-down favorite, where, when you were a kid, the waiter made a Caesar salad at the table, but sleight of hand, he never told you he put raw anchovies into it. Your mother ordered  grilled fish for your father and he declared, showily: he loved the way she took care of him. Later, when she was taking a bath, he ate cold meatballs straight out of the refrigerator.
+
+Early the next morning, while your father was playing bridge, you drove out to the main street with your mother. Some of the stores haven’t changed from what you remember. There is Hunters Pharmacy where you used to go to the makeup counter and agonize over one  cheap and perfect lipstick to buy with  your babysitting money, and now your mother  “perked you up” (she called it, though you were unusually alert to her euphemisms). “Woman to woman,” she said,  meaning, without your father around—a conspiratorial shift you wanted to believe. She bought you blush and eye makeup, a wonder working French concealer, the works. She spent $300 on you in 20 minutes.  They used to have a lunch counter at Hunters Pharmacy where you and your sister ate French fries covered with gravy and once, in the middle of swabbing a french fry, your sister told you why your parents shut their bedroom door at night and you swore she wasn’t telling the truth. You didn’t know if you wanted her to take it back or not. You wanted to think that hearing a truth or a lie was as black and white as saying it.
+
+Where the toy store used to be when you were a toddler, a bagel shop moved in when you were in junior high. There, in the parking lot you saw a girl get hit by a car and live. She was your age, 13, and her body flew across the street into the parking lot at the dry cleaners, the one your parents didnt like to use because they said they creased your father’s collars. But you found out later that your mother hated the owner because she got tipsy at a party once and asked your father if he went straight home after work.
+
+You dropped your mother off at the beauty parlor for a long morning of color and perm. The beauty parlor is next to the luxury shoe store where they know her first name and have her credit card in the computer. She’s always told your father what one shoe of the pair cost instead of the full price. She said what you were thinking as your father ate the meatballs from the fridge, that little white lies were like grease that keep things going.
+
+You took a break and visited your best friend from high school. She and her husband have built a house on a small new development close to the house where you grew up, the house your parents have now double down-sized from. You stayed at your friend’s until after noon. The house is luxurious and the kitchen has expensive built-in appliances, and when she hung up the phone with her husband they said ” I love you” to each other even though she had spent an hour telling you how unhappy she is with him. You remembered how in her family, they always rounded up experience to the highest good: it was always the best meal, the best trip in the world, the best day ever, they loved each other always. You left before you had to, using your mother as an excuse which was, given the circumstances, a sanctified stretch of the truth.
+
+You drove out of your hometown stirred up with thoughts that weren’t new, how neither truths nor lies were impediments to a relationship, but you expected the grainy feelings to recede, mile per mile, like a dot in the rear view mirror. Except out on the beltway you passed the spot only two people know about: where you picked up a very cute guy in a blue convertible. You drove a blue convertible, also, but it was fancier than his. You were 18. You raced lanes until you both got off the next exit and exchanged phone numbers, except**,** when he called**,** you couldn’t live up to your derring-do. Because he turned out to be a cousin of your first cousin on the other side. You lied and told him you were busy. You can’t believe that all these years the lie has bothered you, not the mischief.
+
+Your son is bringing his family for the weekend and the oranges thud one last time as you pull up to your house which is, as you have learned, like a person you can’t expect to be consistent or straightforward. When it’s storming the windows rattle like unspoken words in your throat. In the deep winter, no matter how hard the heat is blasting, the hallways are cold as a man when he is anxious to leave. You park the car. You open the lift gate carefully so the oranges and juice bottle don’t drop onto the road, but you can’t take your eyes off the rhododendron to the left of the front porch, the one that didn’t make it through the winter. You close the lift gate. Before you unload the groceries you dig into the hall closet, past the wasp foam and old bubble machine. You find the shrub clippers on the shelf next to the air pump for bicycle tires.
+
+You hack out the dead branches of the rhododendron. At the end of an hour, what a surprise. If they’re flexible and able to bend it means the bush isn’t dead.
+
+<p style="text-align: center;">
+  ~
+</p>
+
+In a couple of hours your son and his wife call you from their van. They are off the highway and a couple of minutes away. You walk out onto the porch. The view seems wider, though it doesn’t make sense that clearing the dead Rhodie leaves made that much of a difference. You can see the van turn into the street. They pull up to your house, honking, rolling down their windows, taking the twins out of their car seats and putting them down on the grass.
+
+“Hey, Mom—” your son shouts.
+
+You strain to the sand in his voice: an uptick? The downtick that’s more familiar?
+
+Those twin babies test the grass with their sweaty wobble legs.  They smile, drunk with release from the straps and buckles of their car seats, drunk with freedom. You bend and hug them both at once. You inhale the juice stains on their shirts.  You realize you know what to say.
+
+“Look. Look how happy they are to see me.”
