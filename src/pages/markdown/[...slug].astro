@@ -5,10 +5,10 @@ import Base from "@layouts/Base.astro";
 
 export async function getStaticPaths() {
   const interviews = await getCollection('interviews')
-  const fictions = await getCollection('fictions')
+  //const fictions = await getCollection('fictions')
   return [
     ...interviews,
-    ...fictions
+    //...fictions
   ].map(entry => {
     return {
       params: {
